@@ -1,0 +1,2 @@
+# bilimiyom
+qwertyuıp
